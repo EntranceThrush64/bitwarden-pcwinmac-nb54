@@ -1,4 +1,4 @@
-# 
+# Seguro Bitwarden extensiones para Mac OS | Élite Bitwarden extensiones para PC Windows. Con limitación de velocidad y bloqueador de anuncios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
